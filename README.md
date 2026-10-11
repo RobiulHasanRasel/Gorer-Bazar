@@ -1,2 +1,0 @@
-# Gorer-Bazar
-Gorer Bazar
